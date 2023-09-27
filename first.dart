@@ -1,1 +1,1 @@
-Stanley Chima
+Stanley
